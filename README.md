@@ -14,3 +14,4 @@
 ======
 ![_C__Users_jaibo_Desktop_Something-to-use-someday_Somethingtousesomeday_20121%EC%A0%84%EC%A0%9C_%EC%A0%84%EC%A0%9C%20%ED%8D%BC%EB%B8%94%EB%A6%AC%EC%8B%B1%20%EB%8C%80%ED%9A%8C_index html](https://user-images.githubusercontent.com/55534787/102711268-9e00a900-42fb-11eb-9fef-532c1c736a6c.png)
 
+- 모든 캐릭터와 사진 소스 및 로고, 디자인 출처 : Don't starve 제작사 Klei 
